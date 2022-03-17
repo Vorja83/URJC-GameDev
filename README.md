@@ -1,3 +1,3 @@
 # URJC-GameDev 
-Elena has joined
-Luis has joined. UwU
+Elena has joined. 
+Luis has joined. UwU.
